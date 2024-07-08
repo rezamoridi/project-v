@@ -22,4 +22,4 @@
 
 ![Screenshot from 2024-07-08 07-08-47](https://github.com/rezamoridi/project-v/assets/118021932/ae430767-35a0-4828-933c-ba6b58c0ea50)
 
-![Screenshot from 2024-07-08 09-08-42](https://github.com/rezamoridi/project-v/assets/118021932/6608367a-58a4-428b-b4b4-a6d957369f1e)
+
