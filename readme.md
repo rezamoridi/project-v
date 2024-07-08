@@ -16,7 +16,6 @@
 
 ![Screenshot from 2024-07-08 07-01-27](https://github.com/rezamoridi/project-v/assets/118021932/7b95ea65-60df-47b5-bcef-1242da34173c)
 
-![Screenshot from 2024-07-08 09-08-42](https://github.com/rezamoridi/project-v/assets/118021932/9576636b-a45f-4571-97ec-b918f0c2a01e)
 
 ![Screenshot from 2024-07-08 07-05-59](https://github.com/rezamoridi/project-v/assets/118021932/64908b93-55b4-459f-907c-e0e8b9741e7c)
 
